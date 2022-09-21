@@ -1,0 +1,1 @@
+Be gracious to me and let your excellent spirit rest upon me. Help me Lord, so that as you bless me with great ideas, I may be able to execute them and achieve greater success, amen. Unusual inspiration, ideas that rule, bless me with these today and always, amen.
